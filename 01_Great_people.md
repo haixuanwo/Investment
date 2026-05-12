@@ -104,4 +104,13 @@ https://www.himcap.com/cn/home
 # 十一、沃尔特·施洛斯
 
 
+# 十二、约翰·邓普顿
+John Marks Templeton, 1912—2008
+https://www.templeton.org/
 
+1. 《邓普顿教你逆向投资》
+
+牛市在悲观中诞生
+，在怀疑中成长
+，在乐观中成熟
+，在狂欢中死亡
